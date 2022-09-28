@@ -1,0 +1,1 @@
+# tek_sayiya_kadar
